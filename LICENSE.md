@@ -1,4 +1,4 @@
-# 
+# quantitative blur sniper bot | floor-sweeping + auto-sell offers the most advanced blur sniper bot, with floor-sweeping and auto-sell. Ideal for professional NFT traders and
 
 
 
